@@ -1,0 +1,2 @@
+# sevominproje
+dore7learn
